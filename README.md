@@ -1,3 +1,5 @@
 # ProMeet
 
-About Promeet, Coming soon.......
+ProMeet is the next big thing
+
+About Promeet, Coming soon.....
