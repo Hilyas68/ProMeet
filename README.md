@@ -2,4 +2,6 @@
 
 ProMeet is the next big thing
 
-About Promeet, Coming soon.....
+Level Up Your Life
+
+Find an Expert
